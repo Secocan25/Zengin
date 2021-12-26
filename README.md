@@ -1,0 +1,2 @@
+# Zengin
+Biraz para kazanalım
